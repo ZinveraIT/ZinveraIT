@@ -1,4 +1,4 @@
-![logo](https://i.postimg.cc/rwFWZBD6/Zinvera-IT-Fb-Cover.png)
+![logo](https://i.postimg.cc/vH9gqQYS/Zinvera-IT-Github-Cover-1.png)
 
 <!--
 **ZinveraIT/ZinveraIT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
