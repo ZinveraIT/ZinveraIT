@@ -1,5 +1,5 @@
 <a href="https://www.facebook.com/mirhussainmurtaza/">
-<img src="https://raw.githubusercontent.com/ZinveraIT/ZinveraIT/main/image/Zinvera IT Redme cover.mp4" />
+<img src="https://raw.githubusercontent.com/ZinveraIT/ZinveraIT/main/image/cover.mp4" />
 </a>
 
 ## 👊Our Mission
