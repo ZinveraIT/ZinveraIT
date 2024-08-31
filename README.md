@@ -1,4 +1,4 @@
-https://github.com/user-attachments/assets/f5474760-15aa-43bb-a71f-f97e6395fd8d
+![cover-ezgif com-optimize](https://github.com/user-attachments/assets/3c6a4f69-074b-4baa-aea9-0d4735e50966)
 
 
 ## 👊Our Mission
