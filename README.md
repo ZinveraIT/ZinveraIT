@@ -1,4 +1,4 @@
-![cover-ezgif com-optimize](https://github.com/user-attachments/assets/3c6a4f69-074b-4baa-aea9-0d4735e50966)
+![cover-ezgif com-optimize](https://i.postimg.cc/633xNPqq/Zinvera-IT-Github-Cover-2.png)
 
 
 ## 👊Our Mission
